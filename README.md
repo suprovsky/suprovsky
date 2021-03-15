@@ -1,4 +1,4 @@
-### Hi there 👋
+Team Fortress 2 / Guilty Gear competitive player, League Admin @ ETF2L, LANsilesia event organiser and of course very toxic gamer
 
 <!--
 **suprovsky/suprovsky** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
