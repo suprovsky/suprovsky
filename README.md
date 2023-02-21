@@ -1,4 +1,4 @@
-Team Fortress 2 / Guilty Gear competitive player, League Admin @ ETF2L, LANsilesia event organiser and of course very toxic gamer
+Team Fortress 2 / Yu-Gi-Oh! Master Duel player, Staff Member @ ETF2L, LANsilesia/PoLANd.tf event organiser and of course very toxic gamer
 
 <!--
 **suprovsky/suprovsky** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
