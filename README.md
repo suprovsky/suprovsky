@@ -1,4 +1,4 @@
-Team Fortress 2 wannabe competitive player, poLANd.tf event organiser and of course very toxic gamer
+haha noob
 
 <!--
 **suprovsky/suprovsky** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
